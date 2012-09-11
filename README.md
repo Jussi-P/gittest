@@ -1,3 +1,7 @@
+###Jussis readme
+
+#I do video editing and game design. Also some other kinda designing and photo/videography.
+
 __http://jussipullinen.tumblr.com__
 
 
