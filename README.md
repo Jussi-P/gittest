@@ -1,6 +1,10 @@
-###Jussis readme
+##Jussis readme
 
-#I do video editing and game design. Also some other kinda designing and photo/videography.
+I do video editing and game design. Also some other kinda designing and photo/videography.
+
+For more info click links below:
+
+
 
 __http://jussipullinen.tumblr.com__
 
